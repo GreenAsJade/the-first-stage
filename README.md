@@ -12,7 +12,7 @@ A finance director and her analyst, whose forecast is never wrong. *The First St
 - [PDF, A5](https://github.com/GreenAsJade/the-first-stage/releases/latest/download/The-First-Stage-A5.pdf), for reading on a screen
 - [PDF, A4](https://github.com/GreenAsJade/the-first-stage/releases/latest/download/The-First-Stage-A4.pdf), for printing at home
 
-Three parts, thirty-four chapters and an epilogue; about 51,000 words. This is a second-draft reading copy, dated 6 October 2026. It will change.
+Three parts, thirty-four chapters and an epilogue; about 51,000 words. This is a second-draft reading copy, dated 8 October 2026. It will change.
 
 **If you read it**
 
